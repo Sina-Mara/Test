@@ -1,5 +1,5 @@
-Dies ist ein Test, damit ich endlich mal klarkomme!
+Dies ist ein Test!
 
 Danke Sebastian!
 
-Es macht sehr viel Spaﬂ1!
+Es macht sehr viel Spa√ü1!
